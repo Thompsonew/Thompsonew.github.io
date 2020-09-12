@@ -1,1 +1,0 @@
-# Thompsonew.github.io
